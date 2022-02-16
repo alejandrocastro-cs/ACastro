@@ -1,3 +1,3 @@
 # About Me
 
-My name is Alejandro Castro and I am currently working on my undergraduate studies for computer science. I’m interested in expanding my coding knowledge to develop team-based projects and complete assigned tasks that help me continue to grow into industry standards.
+Passionate about applying my technical skills in close collaboration with team-based work environments to effectively meet project development goals. Currently in the process of finalizing my undergraduate studies in Spring 2022 with the definitive focus to continue growing into industry standards, while utilizing my professional bilingual communication skills to expand my professional network with like-minded people. Seeking professional internship experience as an upcoming graduate from UH.
